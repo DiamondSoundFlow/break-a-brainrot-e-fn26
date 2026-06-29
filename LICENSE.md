@@ -1,4 +1,4 @@
-
+exclusive break a brainrot egg Script offers the most advanced break a brainrot egg Script, with auto-collect and invisibility. Perfect for
 
 
 
